@@ -1,6 +1,6 @@
 - Hi, I’m @zdstrash
 - TheFinestMeme#2595
-- Looking to mess with some stuff I guess
+- Now Im motivated
 
 <!---
 zdstrash/zdstrash is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
